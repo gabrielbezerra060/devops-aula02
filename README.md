@@ -1,4 +1,5 @@
 # devops-aula02
-Marck Rufalo
+Mia Khalifa
 Rodrigo Santoro
 Jenifer Aniston
+Alison Balsom
